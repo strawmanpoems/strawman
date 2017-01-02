@@ -1,6 +1,6 @@
 ---
 layout: poem
-title: "the acorn"
+title: "acorn"
 tags: 
     - poems
 ---

@@ -14,11 +14,11 @@ to the field i must go.
 my dress is torn,
 the air so still,
 smoke rises thin,
-where we laid on the hill.
+where we lay on the hill.
 
-dare to i gaze up,
+dare to i gaze up
 from this ground,
-my hands shake cold,
+my hands shake cold
 in the soil they have found.
 
 once given with heart,
@@ -48,3 +48,6 @@ as the smoke yields to the wind,
 will our souls find each other again?
 
 </pre>
+
+
+
