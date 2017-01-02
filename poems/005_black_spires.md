@@ -1,7 +1,8 @@
 ---
 layout: poem
 title: "black spires"
-tags: [poem]
+tags:
+    - poems
 ---
 
 <pre class="stanza">

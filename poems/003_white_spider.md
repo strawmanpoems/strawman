@@ -1,7 +1,8 @@
 ---
 layout: poem
 title: "white spider"
-tags: [poem]
+tags: 
+    - poems
 ---
 
 <pre class="stanza">

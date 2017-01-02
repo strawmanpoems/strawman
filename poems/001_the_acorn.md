@@ -1,7 +1,8 @@
 ---
 layout: poem
 title: "the acorn"
-tags: [metric, poem]
+tags: 
+    - poems
 ---
 
 <pre class="stanza">

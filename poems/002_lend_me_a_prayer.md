@@ -1,7 +1,8 @@
 ---
 layout: poem
 title: "lend me a prayer"
-tags: [song]
+tags: 
+    - lyrics
 ---
 <pre class="stanza">
 lend me a prayer,

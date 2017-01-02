@@ -1,7 +1,8 @@
 ---
 layout: poem
 title: "mucalinda"
-tags: [song]
+tags: 
+    - lyrics
 ---
 
 <pre class="stanza">

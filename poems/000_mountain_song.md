@@ -1,7 +1,8 @@
 ---
 layout: poem
 title: "mountain song"
-tags: [poem]
+tags: 
+    - poems
 ---
 <pre class="stanza">
 a searing distant call 

@@ -1,19 +1,9 @@
 ---
-layout: page
-title: Tags
-
+layout: poem
+title: Song Lyrics
 ---
 
-{{page}}
-
-
-{% if page.url == "/tags/#poems" %}
-  {% assign pieces = (site.pages | where: "tags" , "poems") %}
-{% else if page.url == "/tags#lyrics" %}
-  {% assign pieces = (site.pages | where: "tags" , "lyrics") %}
-{% endif %}
-
-
+{% assign pieces = (site.pages | where: "tags" , "lyrics") %}
 
 {% for piece in pieces %}
   <div class="list-post">
