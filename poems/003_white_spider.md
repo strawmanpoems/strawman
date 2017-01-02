@@ -1,7 +1,7 @@
 ---
 layout: poem
 title: "white spider"
-tags: [iamb]
+tags: [poem]
 ---
 
 little white spider,

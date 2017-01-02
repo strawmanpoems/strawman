@@ -1,7 +1,7 @@
 ---
 layout: poem
 title: "lend me a prayer"
-tags: [iamb]
+tags: [song]
 ---
 
 lend me a prayer,
@@ -19,4 +19,4 @@ and dance with the heat,
 
 the searing black sun,
 
-fears the light to retreat.
+dares the light to retreat.
