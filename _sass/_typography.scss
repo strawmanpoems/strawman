@@ -204,6 +204,17 @@ pre code {
   background-color: transparent;
 }
 
+
+.stanza {
+  padding:0;
+  margin-left: 12px;
+  background-color: #fff; 
+  font-family: $base-font;
+  font-size: 20px; 
+  letter-spacing:.15px
+}
+
+
 .highlight {
   margin-bottom: 1rem;
   border-radius: 4px;

@@ -50,7 +50,7 @@ body {
   Header
   -------------- */
 .header {
-  padding: 2%;
+  padding: 1%;
 
   &-title {
     font-weight: 300;
@@ -168,7 +168,7 @@ body {
 
 .list {
   &-post {
-    padding: 4% 2%;
+    padding: 1% 1% 1% 2%;
     &:hover {
     background-color: $background-over-color;
     border-color: transparent;
@@ -307,7 +307,6 @@ body {
   				background-color: $background-over-color;
   		    border-color: transparent;
         }
-
       }
 
 
@@ -326,11 +325,9 @@ body {
 }
 
 
-/*--------------
-  Footer
-  -------------- */
 .footer {
-  text-align: center;
+  margin-top:8em;
+  text-align: left;
   font-size: .75rem;
 
   &-link {
