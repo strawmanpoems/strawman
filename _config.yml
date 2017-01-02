@@ -11,8 +11,8 @@ author:
   name:             Strawman
 
 
-url:                "http://localhost:4000" # use this url when develop
-baseurl:            "" # the subpath of your site, e.g. /blog
+url:                "http://if.io" # use this url when develop
+baseurl:            "/strawman" # the subpath of your site, e.g. /blog
 
 
 # http://en.wikipedia.org/wiki/List_of_tz_database_time_zones
