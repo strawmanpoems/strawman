@@ -6,14 +6,11 @@
 # Basic
 name:               "Strawman"
 
-
 author:
   name:             Strawman
 
-
-url:                "http://if.io" # use this url when develop
-baseurl:            "/strawman" # the subpath of your site, e.g. /blog
-
+url:                "http://strawman.ink" # use this url when develop
+baseurl:            "/" #"/strawman" # the subpath of your site, e.g. /blog
 
 # http://en.wikipedia.org/wiki/List_of_tz_database_time_zones
 timezone:           America/Los_Angeles
@@ -28,6 +25,9 @@ markdown:           kramdown
 kramdown:
   input:            GFM
 
+tags: 
+  - poems
+  - lyrics
 
 # Sass
 sass:
@@ -39,4 +39,4 @@ gems:
   - jekyll-seo-tag
   - jekyll-paginate
 
-exclude:            [vendor]
+
