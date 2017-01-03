@@ -7,7 +7,7 @@ tags:
 
 <pre class="stanza">
 this is my make-believe kerouac,
-imagining the tired old embers,
+dreaming of the tired embers,
 smoldering,
 ash-jumping sparks in search of tinder&mdash;
 but what burns?
@@ -26,7 +26,7 @@ a naive child falling helplessly
 in love with the idea of *it*  and
 so wants, desires, needs and ignites
 a passion, a belief too powerful to deny or
-regret until the facade if that  belief crumbles
+regret until the facade of that  belief crumbles
 and burns in the face of new burning embers
 
 the enlightened, i think
