@@ -10,7 +10,7 @@ author:
   name:             Strawman
 
 url:                "http://strawman.ink" # use this url when develop
-baseurl:            "/" #"/strawman" # the subpath of your site, e.g. /blog
+baseurl:            #"/" #"/strawman" # the subpath of your site, e.g. /blog
 
 # http://en.wikipedia.org/wiki/List_of_tz_database_time_zones
 timezone:           America/Los_Angeles
