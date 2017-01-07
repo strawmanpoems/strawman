@@ -16,7 +16,7 @@ the air so still,
 smoke rises thin,
 where we lay on the hill.
 
-dare to i gaze up
+dare do i gaze up
 from this ground,
 my hands shake cold
 in the soil they have found.
