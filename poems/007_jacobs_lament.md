@@ -35,7 +35,7 @@ the chill in the air,
 my heart does receive.
 
 bury me deep,
-sow shut my eyes,
+sew shut my eyes,
 let the vines of this earth
 bear my soul to rise.
 
