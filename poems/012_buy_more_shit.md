@@ -2,7 +2,7 @@
 layout: poem
 title: "buy more shit"
 tags: 
-    - poem
+    - poems
 ---
 <pre class="stanza">
 buy more shit
@@ -73,13 +73,13 @@ your job pays for this shit
 and you have choices:
 more shitty chemo, radiation, amputations, radical body-soul-ectomies,
 more invasive introspections, medications, searching,
-more waiting, and waiting, and waiting,
+more waiting, and waiting, and waiting, and waiting ...
 and someone removed somewhere doesn't feel you and is
 making a shit-ton with every shitty choice you make,
 and you, you lay alone in the dark removed from the pain,
 with laser focus on a paint crack,
 the LED instrument lights and beeps are an ensemble
-playing a surrealistic song that reminds you of something you can't recall,
+playing a surrealistic song that reminds you of something you can't quite recall,
 the walls echo black in that space between wake and sleep,
 you must own it now, for in it lies your truth.
 
