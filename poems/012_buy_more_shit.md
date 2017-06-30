@@ -9,20 +9,20 @@ buy more shit
 you don't have enough
 you need more shit
 
-envy the massive steaming mounds
+envy those massive steaming mounds
 sparkling with luminescent rice bits 
-building mountains and castles of shit,
+building mountains and castles of poo poo,
 little turds zipping by, flying to nowhere,
 you are not real until you have shit&mdash;
 lots of shit
 
 so, study shit, study
-how shit is made, 
-how shit is governed,
-how to sell shit.
+how it's made, 
+how it's governed,
+how to sell it.
 ignore the cost, take a loan, 
-peonize your spirit just for a small faction of time because
-the shit you learn feeds the shit you earn
+peonize your soul--for just a small faction of time,
+for the shit you learn feeds the shit you earn
 
 buy more shit
 you need more shit
@@ -30,7 +30,7 @@ you can't have enough shit
 
 marry the person with the most shit
 tell your stinky fingered friends
-that they too, one day, can have as much shit as you,
+that they too, one day, can have as much as you,
 and if they don't, or you don't, 
 have a shitty dinner party,
 serve poo pate on toast, with goddess piss,
@@ -51,36 +51,37 @@ and isolation, division, class, and privilege
 buy them shit
 shit to eat, shit to wear,
 shit to play with, shit to read,
+shit to click swipe text tweet tap dbl-shit click    
 shit to make more shit.
-buy more shit
 
 lay your body on bed of crisp white hay, 
 crackling under your dry and sweating skin,
 under bright lights smell the clean chlorine,
-surrender to the cold anapestic effervescence of the IV 
-as the medicine wafts its way up behind your eyes and 
-tastes just like ice cold steel and acid icicles 
+hear the beep beep beep of the machines, a death cadence,
+surrender to the cold anapestic effervescence of the 
+medicine wafts its way up the IV and behind your eyes and 
+tastes just like ice cold steel and acid ice 
 burning at the back of your throat,
 and ripping through all of your tissue and organs.
 savor the fear of your mortality, 
-this is the real shit,
+for this is the real shit,
 you can't buy this shit, or take it with you.
 you are dying, you are waking, you are seeing, 
-hearing, feeling, doubting. 
+hearing, feeling, doubting, regretting.
 
 it is good you studied so hard,
-your job pays for this shit
-and you have choices:
-more shitty chemo, radiation, amputations, radical body-soul-ectomies,
+your job pays for this shit and you have choices:
+more shitty chemo, radiation, amputations, radical body-and-soul-ectomies,
 more invasive introspections, medications, searching,
 more waiting, and waiting, and waiting, and waiting ...
 and someone removed somewhere doesn't feel you and is
-making a shit-ton with every shitty choice you make,
-and you, you lay alone in the dark removed from the pain,
-with laser focus on a paint crack,
+making a shit-ton with every shitty little choice you make,
+and you, you lay alone in dark dulled pain,
+with laser focus on a crack of paint,
 the LED instrument lights and beeps are an ensemble
-playing a surrealistic song that reminds you of something you can't quite recall,
-the walls echo black in that space between wake and sleep,
+playing a surrealistic song that reminds you of 
+something you can't quite recall,
+the walls echo black in the shadows between wake and sleep,
 you must own it now, for in it lies your truth.
 
 buy more shit

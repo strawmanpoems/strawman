@@ -5,7 +5,7 @@ tags:
     - poems
 ---
 <pre class="stanza">
-Steps
+
 
 In the shadow space between dark and light, 
 wake and sleep intertwine like mating serpents, 
