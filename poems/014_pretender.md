@@ -1,6 +1,7 @@
 ---
 layout: poem
 title: "pretender"
+meta-status: "draft"
 tags: 
     - poems
 ---
@@ -17,12 +18,9 @@ by others you cannot touch nor see into their eyes,
 or smell their fear, hear their breathing, yet
 that is what drives you.
 
-You've not lost your soul, it's atrophied and a dried up raisin.
-
-Which mask will you where today?
-You look better that way
-Which mask are you?
-
+You've not lost your soul, it's stale atrophy
+--a dried up dog turd in the sun,
+dusted hard white crust, but spoiled inside.
 
 
 ....

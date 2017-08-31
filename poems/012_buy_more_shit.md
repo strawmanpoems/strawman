@@ -1,6 +1,7 @@
 ---
 layout: poem
 title: "buy more shit"
+meta-status: "draft"
 tags: 
     - poems
 ---
