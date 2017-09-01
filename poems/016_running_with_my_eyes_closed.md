@@ -21,6 +21,8 @@ the dark is cool and calm, and is nice to me.
 but i hear them anyway. i know they want to hurt me.
 i don't belong here. 
 
+i run.
+
 if i run fast enough they won't catch me.
 if i hit my head like drums they leave me alone.
 i cry and scream and they go away. 

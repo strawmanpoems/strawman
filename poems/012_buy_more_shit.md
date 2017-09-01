@@ -11,18 +11,20 @@ you don't have enough
 you need more shit
 
 envy those massive steaming mounds
-sparkling with luminescent rice bits 
+sparkling with luminescent bits of rice and corn, 
 building mountains and castles of poo poo,
 little turds zipping by, flying to nowhere,
 you are not real until you have shit&mdash;
 lots of shit
 
-so, study shit, study
-how it's made, 
+so, study shit, 
+study
+how shit's made, 
 how it's governed,
-how to sell it.
+how to sell shit.
 ignore the cost, take a loan, 
-peonize your soul--for just a small faction of time,
+peonize your soul
+    --for just a small faction of time--
 for the shit you learn feeds the shit you earn
 
 buy more shit
@@ -35,40 +37,49 @@ that they too, one day, can have as much as you,
 and if they don't, or you don't, 
 have a shitty dinner party,
 serve poo pate on toast, with goddess piss,
-fruit sprayed with shit, and tossed shit salad,
+cut fancy fuck fruit sprayed with shit, 
+and tossed shit salad,
 and lounge your bubbling intestines and talk shit,
 a peck on the butt cheek ends the night
-where your dreams are filled with shit.
+where your dreams are filled with more shit.
 
-give birth to many little shitters and teach them well
+birth many little shitters and teach them well
 for the amount of shit they gather reflects on
 you and all your shitty ancestors.
 teach them to fear, 
 and to smear the shit they collect in the faces
-of those who have those lily-clean asses who have less,
+of those who have lily-clean asses 
+who so sadly have less shit,
 teach them the pretense of caring and sharing,
-and isolation, division, class, and privilege
+and isolation, division, class, and privilege.
 
 buy them shit
 shit to eat, shit to wear,
 shit to play with, shit to read,
-shit to click swipe text tweet tap dbl-shit click    
-shit to make more shit.
+shit to click swipe text tweet tap snap dbl-shit click chat
+code fuck and big data shit,    
+and shit to make more shit.
 
 lay your body on bed of crisp white hay, 
-crackling under your dry and sweating skin,
+crackling under whats left of your dry and sweating skin,
 under bright lights smell the clean chlorine,
-hear the beep beep beep of the machines, a death cadence,
-surrender to the cold anapestic effervescence of the 
-medicine wafts its way up the IV and behind your eyes and 
-tastes just like ice cold steel and acid ice 
+hear the beep beep beep of the machines
+    --a death cadence--
+surrender to the cold anapestic effervescence  
+as the chemicals slowly waft their way up the IV,
+and you watch as the clear liquid in the tube turns brown
+and you trace its path to the needle taped firmly into your crackled arm, 
+waiting, like an addict, anticipating, yearning,
+swallowing what little saliva you have in your putrid mouth, 
+you feel the chemicals as it hits behind your eyes and 
+it tastes just like cold steel and acid icicles, 
 burning at the back of your throat,
 and ripping through all of your tissue and organs.
 savor the fear of your mortality, 
-for this is the real shit,
-you can't buy this shit, or take it with you.
-you are dying, you are waking, you are seeing, 
-hearing, feeling, doubting, regretting.
+for this, this is the real shit,
+you can't buy this shit, take it with you, or give it away.
+you are dying and are waking at the same time, 
+you are seeing, hearing, feeling, doubting, regretting.
 
 it is good you studied so hard,
 your job pays for this shit and you have choices:

@@ -6,7 +6,7 @@ tags:
 ---
 <pre class="stanza">
 a searing distant call 
-mounted behind twisted teeth 
+rising behind twisted teeth 
 black from tobacco and neglect 
 pierces blue and cold 
 like the mountain pines. 
