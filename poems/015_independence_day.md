@@ -1,6 +1,7 @@
 ---
 layout: poem
 title: "independence day"
+meta-status: "first draft"
 tags: 
     - poems
 ---
