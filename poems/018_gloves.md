@@ -3,6 +3,7 @@ layout: poem
 title: "gloves"
 meta-description: ""
 meta-status: "first draft"
+pub-date: "10/01/17"
 tags: 
     - poems
 ---
@@ -10,7 +11,7 @@ tags:
 
 grandma gave me new gloves for my birthday
 tanned leather with broad hard cuffs that never soften
-they're worn now and 40 years old at least
+they're worn and old now
 my most prized gift
 what was she telling me?
 they've built sheds and decks
@@ -21,8 +22,6 @@ they know heat and fire and don't care
 coals   weeds   dirt   soil  mud  roots   axe   rope   lumber   wire   cable stone   logs   docks   fish
 they remember the days i hurt
 and hold my damaged flesh and know my blood well
-they remember when i had to 
-lift the motorcycle into the truck and
 they remember when i say goodbye
 they remember the icy days and know
 they weren't made for warmth
@@ -36,7 +35,7 @@ the confusion.
 alone with the lids of jars nailed into the basement rafters
 with that old things familiar smell
 a hofner bass in the corner 
-my chest shaking 
+my chest contorting inside 
 cheeks and back of eyes and throat burning
 
 she gave me my gloves

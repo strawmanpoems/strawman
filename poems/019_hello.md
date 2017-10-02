@@ -3,6 +3,7 @@ layout: poem
 title: "hello"
 meta-description: ""
 meta-status: "first draft"
+pub-date: 10/01/17
 tags: 
     - poems
 ---
