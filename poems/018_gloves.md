@@ -12,6 +12,7 @@ tags:
 grandma gave me new gloves for my birthday
 tanned leather with broad hard cuffs that never soften
 they're worn and old now
+stained brown and gently fraying at the fingers
 my most prized gift
 what was she telling me?
 they've built sheds and decks
