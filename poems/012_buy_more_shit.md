@@ -59,6 +59,10 @@ shit to play with, shit to read,
 shit to click swipe text tweet tap snap dbl-shit click chat
 code fuck and big data shit,    
 and shit to make more shit.
+on your knees and unbuckle it,
+spread the lily-white valley cheeks
+and get in line yo give us a good ol' zucker-jobs 
+right smack dab on the anus.
 
 lay your body on bed of crisp white hay, 
 crackling under whats left of your dry and sweating skin,

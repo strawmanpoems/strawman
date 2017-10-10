@@ -20,8 +20,9 @@ and it's swiftness in crawling was curious.
 i leaned forward in awe 
 at this tragic grace, kreening my head.
 under the eave of an odd ledge, 
-next to bench, underneath was a fabulous world
-i'd never seen.
+next to a park bench, underneath was a fabulous world
+i'd never seen tucked and wrapped in 
+new and old leaves and vines.
 it sought out the safety of a 
 large thorny oblong half-shell,
 like a coconut with black gum prickers 
@@ -48,8 +49,8 @@ why did it leave? did it find something?
 did it hear something in the distance?
 as agile as it ascended, it descended to the urban concrete
 and crossed the busy street, gliding effortlessly through
-cars and pedestrians who were none the wiser as to this
-phenomenal presence.
+cars and pedestrians who were oblivious to this
+phenomenal presence, who will never know.
 i followed. what a strange thing! what is it?
 it found an opening to a parking garage,
 prison bars allowed his passage in,
