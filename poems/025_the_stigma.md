@@ -1,8 +1,8 @@
 ---
 layout: poem
-title: "punishment"
+title: "the stigma"
 meta-description: ""
-meta-status: "first draft"
+meta-status: "third draft"
 pub-date: 11/23/17
 tags: 
     - poems
@@ -16,7 +16,8 @@ i knew this private room well
 i could taste the fear and shame
 anticipate the belt or the hand
 but it was a metal ring this time
-to be thrust through the flesh of my arm 
+to be thrust through the flesh of my arm
+a permanent adornment of shame,
 that was to be my atonement
 
 my spirit brothers came to me
@@ -27,26 +28,27 @@ we are connected by the bridge to the spirit world
 their gaze reverent, still, and unafraid
 i spoke silently about my fear and shame
 about the metal ring that was to 
-painfully pierce my flesh
-as punishment for me, for my deed
+pierce my flesh
+as punishment for me, 
+for my deed
 
 they spoke silently about living
 about mistakes
 
-i felt the cold metal rip through the flesh of my arm
-and saw the large ring dangling
-from my bleeding flesh
-a searing emblem
-a painful token 
+the cold metal ripped through my flesh
+and I saw the large ring dangling
+escaping warm red blood 
+carving a small rivers that dripped to the floor
+this is mine now and forever
 
 as my spirit brother dressed my wound
 i saw his arms
-adorned up and down with many pierced rings
+adorned wrist to shoulder with many rings
 many sizes
 old and new
-dangling through time
-and through my dreams
-
+dangling and clanging through time
+and through my soul now
+we are what we do
 
 </pre>
 

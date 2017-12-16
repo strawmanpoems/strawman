@@ -46,7 +46,7 @@ in wind and street
 the hubris oozes waves of red and blue jelly 
 and engulfs all those who dare gaze too long
 their shame is hidden deep 
-deep beneath degrees and titles and and hair products  
+deep beneath degrees and titles and and hair products and plastic money
 and busy, so busy! so important
 more important than
 our father who ohmed madne padne ohm
