@@ -44,12 +44,11 @@ this is mine now and forever
 as my spirit brother dressed my wound
 i saw his arms
 adorned wrist to shoulder with many rings
-many sizes
 old and new
-dangling and clanging through time
-and through my soul now
-we are what we do
-
+brass, metal, marble
+dangling and clanging echoing 
+beyond the ages
+and through me now
 </pre>
 
 
