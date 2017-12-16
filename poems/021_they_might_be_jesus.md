@@ -23,7 +23,7 @@ curtains in a cabin on the lake
 he is laid on the stained concrete
 eyes closed, dead or sleeping, 
 face dirty gray black from months, years, eternity
-of drifting in the urban american acheron
+of drifting forever in the urban Acheron
 his torn clothes grow out of the stone
 like wretched death thorns 
 the wind blowing his stench of urine
@@ -41,14 +41,24 @@ what in me wants to kill it
 and wipe its smeared guts from my view,
 clear its existence altogether?
 
+his tie and her pumps wave and smack financial rhythms 
+in wind and street
+the hubris oozes waves of red and blue jelly 
+and engulfs all those who dare gaze too long
+their shame is hidden deep 
+deep beneath degrees and titles and and hair products  
+and busy, so busy! so important
+more important than
+our father who ohmed madne padne ohm
+
 shiva buddha nagga baphoment mosses  
 jobs jefferson hitler 
 loki thor appolo krishna odin 
-lilith vishnu white-buffalo mohamed 
-kerouac ghandi kid picking on my kid
-asswipe swiping neck-cane arch sucked into whatever 
-poseidon ishmael idris lone-eagle 
-the kim jon un trump putin ménage à trois
+lilith vishnu white-buffalo-calf-woman mohamed 
+kerouac ghandi kid-picking-on-my-kid
+asswipe swiping neck-cranes arched and face sucked into whatever
+poseidon ishmael idris
+the kim jon un trump putin butt fucking train ménage à trois
 and birds shitting on my car
 
 - they might be jesus

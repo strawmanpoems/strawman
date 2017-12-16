@@ -36,7 +36,7 @@ the confusion.
 alone with the lids of jars nailed into the basement rafters
 with that old things familiar smell
 a hofner bass in the corner 
-my chest contorting inside 
+my chest contorting and ripping inside 
 cheeks and back of eyes and throat burning
 
 she gave me my gloves
