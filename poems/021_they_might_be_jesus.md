@@ -16,15 +16,15 @@ and looks down to me with fear
 disguised as disgust, so fat,
 with empty boxes and bags, 
 knocking at space and time
-her stained flowered dress would make
+her stained yellow flowered dress would make
 for a good kitchen apron or 
 curtains in a cabin on the lake
 
-he is laid on the stained concrete
+he is laid on stained concrete
 eyes closed, dead or sleeping, 
 face dirty gray black from months, years, eternity
-of drifting forever in the urban Acheron
-his torn clothes grow out of the stone
+of drifting in the urban Acheron
+his torn clothes and limbs grow out of the stone
 like wretched death thorns 
 the wind blowing his stench of urine
 and unknown time in purgatory
@@ -41,25 +41,29 @@ what in me wants to kill it
 and wipe its smeared guts from my view,
 clear its existence altogether?
 
-his tie and her pumps wave and smack financial rhythms 
+his tie her pumps wave and smack  
+tip tap tip tap clinking jewelry
 in wind and street
+and smell of plastic money and hair products
 the hubris oozes waves of red and blue jelly 
-and engulfs all those who dare gaze too long
+and engulfs all those who dare savor too long
 their shame is hidden deep 
-deep beneath degrees and titles and and hair products and plastic money
+deep beneath degrees and titles and lineage
 and busy, so busy! so important
 more important than
-our father who ohmed madne padne ohm
+our father who ohmed 
+madne padne ohm
 
 shiva buddha nagga baphoment mosses  
 jobs jefferson hitler 
 loki thor appolo krishna odin 
-lilith vishnu white-buffalo-calf-woman mohamed 
-kerouac ghandi kid-picking-on-my-kid
-asswipe swiping neck-cranes arched and face sucked into whatever
-poseidon ishmael idris
+lilith vishnu white-buffalo-calf-woman 
+kerouac ghandi kid-picking-on-my-kid 
+asswipe swiping neck-craning arched and face sucked into whatever
+poseidon ishmael idris mohamed
 the kim jon un trump putin butt fucking train ménage à trois
-and birds shitting on my car
+and birds 
+shitting on my car
 
 - they might be jesus
 
