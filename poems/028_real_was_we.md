@@ -25,13 +25,15 @@ we tasted dreams and (even in the stench) we
 were gods and ruled
 and we made everything just fine
 until the next moment slipped into us.
+
 real was we, simply skipping 
 on the now stones across a trickle of time
 and we could pause it, right?
-freeze-frame, replay, skip, over and over, and
+freeze-frame, replay, skip, skip, skip, over and over, and
 we didn't know how we would relish the simplicity, 
-the hiss the crackle and hum and smell of old vinyl and cardboard
-we were dying in a different way
+or the hiss the crackle and hum 
+and smell of old vinyl and cardboard-
+we were dying in a different way, really
 
 
 </pre>
