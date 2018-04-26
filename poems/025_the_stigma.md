@@ -45,7 +45,7 @@ as my spirit brother dressed my wound
 i saw his arms
 adorned wrist to shoulder with many rings
 old and new
-brass, metal, marble
+brass, metal, wood, and onyx
 dangling and clanging echoing 
 beyond the ages
 and through me now
