@@ -10,30 +10,31 @@ tags:
 <pre class="stanza">
 
 
-real was the song that pin-balled 
-across the concrete 
-dodging the echoes of lonely streets-
-a milky syringe floating with blood and dope
-the warm miniature lava-lamp of god 
+real was a song that pin-balled 
+across concrete 
+dodging echoes of lonely streets-
+the milky syringe floating with blood 
+a warm miniature lava-lamp of god 
 (and Billy's dead now, by the way)-
-the hollow melody of women who sold smiles to anyone-
-the moist rhythm of her thigh and sweet whispers of dreams-
-the irresistible allure of anticipation
+hollow melodies of women who sold smiles to anyone-
+the moist rhythm of thighs and sweet whispers of dreams-
+and irresistible allure of anticipation
 becoming unstuck in the moment-
 there in the lack of possible 
 we tasted dreams and (even in the stench) we
 were gods and ruled
 and we made everything just fine
-until the next moment slipped into us.
+until 
+the next moment slipped into us.
 
 real was we, simply skipping 
 on the now stones across a trickle of time
 and we could pause it, right?
 freeze-frame, replay, skip, skip, skip, over and over, and
 we didn't know how we would relish the simplicity, 
-or the hiss the crackle and hum 
-and smell of old vinyl and cardboard-
-we were dying in a different way, really
+or the hiss or the crackle and hum 
+and the musty smell of old vinyl and cardboard-
+we were dying, really, in the real way
 
 
 </pre>

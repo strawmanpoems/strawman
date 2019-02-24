@@ -47,8 +47,9 @@ adorned wrist to shoulder with many rings
 old and new
 brass, metal, wood, and onyx
 dangling and clanging echoing 
-beyond the ages
+beyond ages
 and through me now
+
 </pre>
 
 

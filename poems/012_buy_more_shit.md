@@ -12,7 +12,7 @@ you need more shit
 
 envy those massive steaming mounds
 sparkling with luminescent bits of rice and corn, 
-building mountains and castles of poo poo,
+building mountains and castles of poo,
 little turds zipping by, flying to nowhere,
 you are not real until you have shit&mdash;
 lots of shit

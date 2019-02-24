@@ -28,7 +28,7 @@ his torn clothes and limbs grow out of the stone
 like wretched death thorns 
 the wind blowing his stench of urine
 and unknown time in purgatory
-what was his crime? 
+what was his crime that put him in this place? 
 someone places a bag of torturous hope
 within his fetid halo
 making some deposit into the national bank of karma.

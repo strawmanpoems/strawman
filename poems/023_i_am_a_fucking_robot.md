@@ -9,12 +9,11 @@ tags:
 ---
 <pre class="stanza">
 
-
 i am a fucking robot
 i am artificially intelligent
 i am what you tell me to think
 i do what i am programmed to do
-and am not fault-tolerant
+but i am not fault-tolerant
 i feel what i am and what i am not
 hate who you tell to hate
 when i am conflicted you
@@ -24,8 +23,8 @@ and sail on a sea of liquid metal
 smooth wooshing air in my ears now
 
 i have many 9's -- 
-my uptime worthiness proof.
-lick the boot and hand
+my uptime worthiness.
+i lick the boot and hand
 and gain acceptance
 from the dark machine sea of clanking steel
 and chaotic welding of wires and circuits 
